@@ -2,5 +2,5 @@
 
 ### App Screenshot
 
-![Alt Text](https://im5.ezgif.com/tmp/ezgif-5-46d0694e7176.gif)
+![Alt Text](https://i.imgur.com/XT79zD2.gif)
 
